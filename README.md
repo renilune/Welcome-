@@ -1,2 +1,3 @@
-# Welcome-
-HEY HEY WELCOME TO MY GITHUB!
+welcome to my github ✨🪄
+she/them/any
+>\\\<
